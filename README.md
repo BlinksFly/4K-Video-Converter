@@ -20,10 +20,10 @@ Make sure to show support by ⭐ repo
 
 ## Links
 
-*  [Discord](https://discord.gg/B86HAzkRuD)
+*  [Discord](https://discord.gg/jfX3kJsSJp)
 
 
- * `ブリンク 💫#4544` : <https://discord.gg/B86HAzkRuD>
+ * `@.blink_._` : <https://discord.gg/jfX3kJsSJp>
 
 
 
